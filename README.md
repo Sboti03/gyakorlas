@@ -1,1 +1,1 @@
-# gyakorlas
+# Somogyi Botond
